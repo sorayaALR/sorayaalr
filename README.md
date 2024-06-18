@@ -1,4 +1,4 @@
-### Olá! Eu sou a Soraya Ribeiro 👋
+### Olá! Eu sou a Soraya Lopes 👋
 
 👩‍🎓 Formada em ciência da computação
 
